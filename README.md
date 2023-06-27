@@ -2,6 +2,8 @@
 > and I’m interested in lots of things
 🌱 I’m currently learning as much as I can and want to.🌱
 
+| Q  | A |
+| ------------- |-------------:|
 | collaborate? | maybe, im not that cool |
 | how to reach me | not yet |
 
